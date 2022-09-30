@@ -1,0 +1,1 @@
+# manuals-astoria-7.02
